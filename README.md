@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&lines=%E5%BF%83%E4%B8%AD%E6%97%A0%E5%A5%B3%E4%BA%BA%EF%BC%8C%E4%BB%A3%E7%A0%81%E8%87%AA%E7%84%B6%E7%A5%9E)](https://git.io/typing-svg)
